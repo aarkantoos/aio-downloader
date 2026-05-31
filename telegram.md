@@ -7,6 +7,249 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/10 03:40
+---
+
+## VahidOOnLine — post 242968
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242968_1780186232.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اورشلیم‌پست در یک یادداشت تحلیلی با اشاره به «تاکتیک‌های تاخیری» جمهوری اسلامی در مذاکرات، هشدار داد واشینگتن نمی‌تواند با تکیه بر منطق آمریکایی و شیوه چانه‌زنی منصفانه در مذاکرات کنونی به نتیجه مطلوب برسد و باید چانه‌زنی و مذاکرات را کنار بگذارد و فقط به «حمله» متوسل شود.
+این مطلب افزود مقام‌های جمهوری اسلامی در گفت‌وگوها نشانه‌هایی از حرکت به سوی توافق ارائه می‌کنند، اما از تعهدهای نهایی پرهیز می‌کنند.
+اورشلیم‌پست با اشاره به اتکای واشینگتن در مذاکرات بر منطق آمریکایی، شیوه چانه‌زنی منصفانه و همان تاکتیک‌هایی که در دنیای کسب‌وکار برایش به خوبی کار کرده بود، نوشت همین موضوع توضیح می‌دهد که چرا توافق غزه که از سوی استیو ویتکاف، بازرگان آمریکایی، میانجی‌گری شد، در ظاهر امیدوارکننده بود، اما هرگز آن‌گونه که در نظر گرفته شده بود به طور واقعی آغاز نشد.
+این تحلیل با هشدار درباره اینکه آمریکا در مذاکرات با حکومت ایران با طرفی متفاوت روبروست که نمی‌توان آن را با شیوه‌های منطقی شکست داد، خطاب به دولت آمریکا نوشت: «چانه‌زنی را متوقف کنید، مذاکرات را کنار بگذارید و فقط حمله کنید.»
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242967
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️براساس تصاویری که به تازگی در شبکه‌های اجتماعی منتشر شده، در جریان مرمت تخت مرمر در کاخ گلستان در روز ۱۸ فروردین‌ماه، مرمت‌گران قطعه «سر فرشته» یکی از مجسمه‌های تاریخی این عمارت را که جدا شده بود، در میان آوار و قطعات شکسته‌شده پیدا کردند.
+در همین رابطه، جبار آوج، مسئول موزه‌های کاخ گلستان، در گفتگو با رکنا اعلام کرد در اثر امواج ناشی از انفجار جنگ اخیر، خساراتی به تزیینات معماری، آیینه‌کاری‌ها، گچ‌بری‌ها و ارسی‌های چوبی این مجموعه وارد کرده است. به گفته او، اگرچه در حال حاضر امکان بازدید عمومی از کاخ وجود ندارد اما هیچ‌یک از آثار موزه‌ای آسیب ندیده‌اند. آوج همچنین تاکید کرد که اقدامات حفاظت اضطراری برای تثبیت شرایط و جلو‌گیری از خسارات ثانویه ناشی از بارندگی‌ها انجام شده و مجموعه در وضعیت پایدار قرار دارد تا پس از پایان مرحله آسیب‌شناسی، وارد فاز مرمت جامع شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242966
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242966_1780186233.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری ایالات متحده، روز شنبه با انتشار تصویر گرافیکی تولیدشده با هوش مصنوعی در شبکه اجتماعی «تروث سوشال»، توجه رسانه‌ها را به خود جلب کرد. در این تصویر ترامپ در جامه یک فرمانده نظامی ارشد با نشان عقاب طلایی آمریکا به تصویر کشیده شده که با انگشت به مخاطب اشاره می‌کند. در پس‌زمینه این طرح، نمادهای قدرت نظامی ایالات متحده از جمله جنگنده‌های پیشرفته در حال صعود و ناوشکن‌ها در کنار کشتی‌های بادبانی تاریخی با پرچم برافراشته آمریکا در میان موج‌های خروشان دریا دیده می‌شوند. ترامپ در حاشیه این تصویر نوشت: «شما دارید گیج و سردرگم می‌شوید».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242965
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_242965_1780186233.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی منتشرشده در رسانه‌های اجتماعی وابسته به جمهوری اسلامی نشان می‌دهد سپاه پاسداران، شامگاه شنبه نهم خرداد، قایق تندرویی را همراه با موشک ضدکشتی برای حامیان حکومت در میدان انقلاب تهران به نمایش گذاشت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242964
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️همزمان با آشوب، آتش‌سوزی و تنش در خیابان‌های پاریس به دنبال جشن قهرمانی پاریس سن ژرمن در دیدار نهایی لیگ قهرمانان اروپا، مارین لوپن، رهبر حزب «اجتماع ملی»، با انتشار پیامی تند در شبکه اجتماعی اکس، به شدت از وضعیت امنیت عمومی انتقاد کرد. این چهره سرشناس سیاسی با اشاره به جو رعب و وحشت حاکم بر خیابان‌ها، بر لزوم برخورد قاطع با برهم‌زنندگان نظم عمومی تاکید کرد. لوپن در موضع‌گیری صریح خود نوشت: «فقط در فرانسه است که پیروزی یک باشگاه فوتبال باعث بروز شورش می‌شود. فقط در فرانسه است که هر کسی احساس می‌کند مجبور است در شب پیروزی، خود را در خانه حبس کند تا با خشونت مواجه نشود.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12971
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارس : براساس برنامه‌ریزی‌های انجام‌شده، حجاج ایرانی از فرودگاه جده به شش فرودگاه شامل تهران، مشهد، زاهدان، شیراز، گرگان و اصفهان منتقل خواهند شد.
+
+نخستین پرواز بازگشت حجاج روز ۱۱ خردادماه(دوشنبه) از جده به مقصد تهران انجام می‌شود.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342437
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342437_1780186235.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A suspected drug-trafficking boat erupts into flames after being struck by U.S. forces in the eastern Pacific.
+
+New video, released by U.S. Southern Command, shows the moment the vessel is hit during an operation carried out Friday.
+
+SOUTHCOM says three "male narco-terrorists" were killed in the strike.
+</div>
+
+## FoxNewsTwitter — post 342436
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+👉 Full story here:
+</div>
+
+## FoxNewsTwitter — post 342435
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342435_1780186236.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Proud Boys and communist activists clash outside Newark ICE detention center as Gov. Sherrill admits 5 of 6 people arrested this week came from out of state. What started as a protest over detainee conditions has become a full-blown ideological battleground — with 'national extremist groups' on both sides driving the chaos, not local residents.
+</div>
+
+## IranIntlTV — post 339803
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339803_1780186237.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اورشلیم‌پست در یک یادداشت تحلیلی با اشاره به «تاکتیک‌های تاخیری» جمهوری اسلامی در مذاکرات، هشدار داد واشینگتن نمی‌تواند با تکیه بر منطق آمریکایی و شیوه چانه‌زنی منصفانه در مذاکرات کنونی به نتیجه مطلوب برسد و باید چانه‌زنی و مذاکرات را کنار بگذارد و فقط به «حمله» متوسل شود.
+این مطلب افزود مقام‌های جمهوری اسلامی در گفت‌وگوها نشانه‌هایی از حرکت به سوی توافق ارائه می‌کنند، اما از تعهدهای نهایی پرهیز می‌کنند.
+اورشلیم‌پست با اشاره به اتکای واشینگتن در مذاکرات بر منطق آمریکایی، شیوه چانه‌زنی منصفانه و همان تاکتیک‌هایی که در دنیای کسب‌وکار برایش به خوبی کار کرده بود، نوشت همین موضوع توضیح می‌دهد که چرا توافق غزه که از سوی استیو ویتکاف، بازرگان آمریکایی، میانجی‌گری شد، در ظاهر امیدوارکننده بود، اما هرگز آن‌گونه که در نظر گرفته شده بود به طور واقعی آغاز نشد.
+این تحلیل با هشدار درباره اینکه آمریکا در مذاکرات با حکومت ایران با طرفی متفاوت روبروست که نمی‌توان آن را با شیوه‌های منطقی شکست داد، خطاب به دولت آمریکا نوشت: «چانه‌زنی را متوقف کنید، مذاکرات را کنار بگذارید و فقط حمله کنید.»
+
+https://iranintl.com/202605305436
+</div>
+
+## IranIntlTV — post 339802
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339802_1780186238.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی منتشرشده در رسانه‌های اجتماعی وابسته به جمهوری اسلامی نشان می‌دهد سپاه پاسداران، شامگاه شنبه نهم خرداد، قایق تندرویی را همراه با موشک ضدکشتی برای حامیان حکومت در میدان انقلاب تهران به نمایش گذاشت.
+</div>
+
+## IranIntlTV — post 339801
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/339801" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی سیاست با مراد ویسی: جهان در انتظار تصمیم ترامپ
+@iranintlTV
+</div>
+
+## IranIntlTV — post 339800
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339800_1780186239.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «دیکتاتوری ها پس از شکست در جنگ آسیب‌پذیرتر می‌شوند. بحران‌های پس از جنگ که ترکیبی از بحران‌های سیاسی و اقتصادی و اجتماعی است، آنها را به سمت سقوط سوق می‌دهد. تجربه سقوط نظامیان در آرژانتین پس از شکست در جنگ فالکلند یکی از نمونه‌های تاریخی این پدیده است. تجربه‌ای که شباهت‌های بسیار با وضعیت کنونی جمهوری اسلامی پس از جنگ‌های ۱۲ روزه و ۴۰ روزه دارد.»
+@iranintltv
+</div>
+
+## FarsiVOA — post 219129
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️سنتکام روز شنبه تصاویری از تعمیرکاران هواپیماهای مستقر روز ناوهای هواپیمابر و کشتی‌های جنگی ایالات متحده را منتشر کرد و گفت عملیات پروازی «پایدار» کار آسانی نیست و تعمیرکاران ماهر شبانه‌روز از «آمادگی» هواپیماها اطمینان حاصل می‌کنند. ستاد فرماندهی مرکزی آمریکا اعلام کرد که یک هواگرد آمریکایی روز جمعه با شلیک یک موشک هل‌فایر، یک کشتی را که با بی‌اعتنایی به هشدارها تلاش داشت محاصره دریایی بنادر ایران را نقض کند،‌ از کار انداختند.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219128
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️از شعار سیاسی تا گام‌های اجرایی؛ آزمون سرنوشت‌ساز دولت عراق در پرونده انحلال گروه‌های مسلح
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219127
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219127_1780186241.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️تلاش سپاه برای اعدام جوانان اکباتان؛ گفت‌وگو با معین خزائلی حقوق‌‌دان
+@FarsiVOA
+</div>
+
+## IranianMinds — post 21097
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21097_1780186242.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قایق تندرو هم آوردن تو میدون انقلاب😂
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21096
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21096_1780186243.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پست ترامپ:
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21095
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21095_1780186244.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@IranianMinds
+</div>
+
+## BBCPersian — post 282454
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282454_1780186246.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻نخست‌وزیر لبنان اسرائیل را متهم کرد که با تخریب سازمان‌یافته شهرها و روستاها و وادار کردن غیرنظامیان به ترک خانه‌های خود در جنوب لبنان، سیاست «زمین سوخته» را دنبال می‌کند.
+
+نواف سلام گفت که تشدید حملات هوایی اسرائیل نه امنیت به همراه خواهد آورد و نه ثبات.
+
+گزارش‌ها حاکیست است که در ۲۴ ساعت گذشته ۱۶ نفر کشته شده‌اند.
+
+قرار است دور تازه‌ای از مذاکرات با میانجی‌گری آمریکا میان اسرائیل و لبنان هفته آینده در واشنگتن برگزار شود.
+
+ارتش اسرائیل نیز اعلام کرد که حزب‌الله روز شنبه بیش از ۲۰ پرتابه به سوی آن کشور شلیک کرده است.
+
+تصاویر پخش‌شده از تلویزیون اسرائیل نشان می‌دهد که چند راکت در نزدیکی شهر نهاریا در دریا فرود آمدند و باعث شدند افرادی که در ساحل بودند محل را ترک کنند.
+
+📸AFP via Getty Images
+https://trib.al/QHw83E1
+@BBCPersian
+</div>
+
+## BBCPersian — post 282453
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻مراسم خاکسپاری مجتبی و میثم ویسی، دو برادر کُرد یارسان که دو روز پیش با شلیک نیروهای سپاه پاسداران در منطقه دالاهو کرمانشاه جان باخته بودند، امروز برگزار شد.
+
+سوران قربانی گزارش می‌دهد
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/10 02:07
 ---
 
